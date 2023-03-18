@@ -1,0 +1,1 @@
+# opera-es-em-vetor
